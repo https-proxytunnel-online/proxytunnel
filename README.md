@@ -24,4 +24,5 @@ Check out our technical articles and community discussions:
 - Pearltrees Profile: https://www.pearltrees.com/proxytunnel
 - About.me Profile: https://about.me/proxytunnel
 - JustPaste: https://justpaste.it/fa50i
+- GoogleSites: https://sites.google.com/view/proxytunnel/
 Feel free to use and share! 🔓
